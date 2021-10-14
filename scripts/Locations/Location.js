@@ -1,0 +1,1 @@
+//LOCATIONS: where he harvested, travel tips
